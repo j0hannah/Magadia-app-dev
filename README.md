@@ -4,6 +4,7 @@
 **How To Train Your Dragon**
 I watched all the films available but I haven't watch any of the short films.
 My favorite scene in the first movie **How to Train Your Dragon (2010)** is the scene where the name toothless came from.
+
 *FUN FACTS*
 1. Written and directed by former Disney stalwarts.
 2. It's based on a book series. Some characters were invented for the film.
